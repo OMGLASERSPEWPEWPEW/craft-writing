@@ -1,6 +1,6 @@
 	
-	Athey sits low on the scuffed diamond-plate steps, heels digging into the dirt. The air tastes of dust and diesel. Behind her is the lift up to her residential stack, clattering idly. Dark clouds coil overhead, spiraling inward like a hurricane's slow breath.
-	She crunches through a carrot. Let's retask, she thinks. 
+	Athey sits low on the scuffed diamond-plate steps, heels digging into the dirt. The air tastes of dust and diesel. Behind her is the lift to her residential stack, clattering idly. Dark clouds coil overhead, spiraling inward like a hurricane's slow breath.
+	She crunches on a carrot. Let's retask, she thinks. 
 	The subtle warmth at the base of Athey's skull flits in response—egg-sized, robin swift. But above and beside that, a heavier warmth presses against her right temple. The recording. Still there, waiting.
 	«Target of interest?» says the voice in Athey’s head, dispassionate.
 	Indonesia, Vietnam. …Anything special about that wall? 
@@ -8,7 +8,7 @@
 	Athey shifts on the stairs. “Damn it, Mom. Where are you hiding?” 
 	She doesn't look to her right. Doesn't look at the monument-sized bust of Memphis frozen mid-gesture.
 	She cracks another carrot. Healthy—tasteless. The last thing she needs, but Koko insists it’s for the better. She doesn’t need healthy right now; she needs clarity. 
-	Above her, Sky Town. Fusion engines burning blue against its dark. Enough power to forget the ground exists. They never do. God, she hates carrots. She hates Sky Town even more. Dina had said she'd be back after the party. The party came and went. Now, Memphis’s missing too and it’s probably because of someone living up there. 
+	Above her, Sky Town looms, like some burnt cookie she'd forgotten in the oven. Its fusion engines shine like blue-mint chips. God, she hates carrots. She hates Sky Town even more. Dina had said she'd be back after the party. The party came and went. Now, Memphis is missing too and it’s probably because of someone living up there. 
 	First Dina. Now Mom. All on top of Water Day and the stack vote in two weeks. What would Memphis say? The memory surfaces: Memphis through the helmet static, Athey a kid. Don't dwell on what you can't fix. Focus and fix what you can!
 	Athey huffs a laugh, rakes her chrome-tipped black boots across the dirt, gouging the print of her sole in the ground. Memphis's projection pulses warmer against her temple—patient and persistent. Waiting.
 	Focus on what you can fix. 
@@ -33,20 +33,20 @@
 	Athey pulls back, her own pulse hammering against the quiet. It’s not a glitch. It’s an edit. Memphis scrubbed the long-range audio so Athey wouldn't hear them coming.
 	The holo continues. Memphis's stern expression softens. The furrows between her brows relax, and her worry lines become laugh lines. Something tender emerges. “How’s Tika?”
 	“She misses you.”
-	Memphis perks up, then bolts. The capture drone lags; for a split second, the giant hologram displays only the empty concrete wall where she stood. Then the feed tears replace the wall with a nauseating streak of red-tinged jungle as the drone accelerates.
+	Memphis perks up, then bolts. The drone lags; for a split second, the giant hologram displays only the empty concrete wall where she stood. Then the feed tears, replacing the wall with a nauseating streak of red-tinged jungle as the drone accelerates.
 	The drone catches up to her. The projection stabilizes. Memphis pumps her arms, no longer looking at the lens. Her blue eyes lock on something beyond the camera as trees blur past her shoulders. She's running.
-	Athey grabs the railing, a small anchor beneath the chaotic, glowing storm of her mother. She'd watched this part three times now. Each time, her knuckles go white. Each time, the metal bites grooves into her palm.
-	The jungle blurs into a smear of speed. Athey had been homing in on Mom then and realized: Memphis wasn't just hiding from someone. She was hiding from Athey too. That was when Athey's breath caught—and Koko flared, her fear translating instantly into motion. She fell into her lotus position, satellites wheeling away from their routes to converge on the locus of Memphis's signal.
+	Athey grabs the railing, a small anchor beneath the chaotic, glowing storm of her mother. She's watched this part three times now. Each time, her knuckles go white. Each time, the metal bites grooves into her palm.
+	The jungle blurs into a smear of speed. Athey had been homing in on Mom then and realized: Memphis wasn't just hiding from someone. She was hiding from Athey too. That was when Athey had seized control of the satellite constellation, tearing the satellites from their orbits to force them to converge onto Memphis's signal.
 	“Tell me where you are or tell me where they are.”
 	Memphis had laughed proudly, lunging over branches. “I made you into a real tiger. Dad would have loved you. 
 	Athey scrubs the footage back two seconds. On the feed, Memphis launches into the air again. She ignores her mother’s face, focusing on the heaving arms and the rifle. There’s a gash on Memphis's bicep and something sticking out of it. Something Athey hadn’t seen before—a shard of matte-black ceramic. 
 	What uses shrapnel like that?
 	Koko hums: Searching.
 	“Dad would have loved you," the holo repeats. “You can’t help me. They got me and I’m almost out of time.”
-	“Fine, I’ll find them myself.” That was when Athey tried launching three t-drones across the Pacific and found her control of the satellite constellation revoked. 
+	“Fine, I’ll find them myself.” That was when Athey tried launching three large drones across the Pacific and found her control of the satellite constellation revoked. 
 	“Mom!”
 	The jungle behind Memphis's bust shifts again—now a ravine slides past. A smile emerges between pants as the background settles on the ravine’s bottom. “Athena! Listen. I am so sorry for this, but I got caught. I couldn’t stay away. Now they know and they’ll come for you next. You have to step down as Chief Resident. You have to run. Take Tika and Dina. You have to go now.”
-	Athey had been frantic then, sweating from Koko’s heat. Memphis had balked every attempt to retake the satellite constellation; she had been planning this. Now, Athey just sits still, watching the panic in her mother’s eyes. Memphis wasn't scared of dying; she was scared for Athey.
+	Athey had been frantic then, sweating from Koko’s heat. Memphis had thwarted every attempt to retake the satellite constellation; she had been planning this. Now, Athey just sits still, watching the panic in her mother’s eyes. Memphis wasn't scared of dying; she was scared for Athey.
 	Athey leans closer to the hologram. There, cinched around Memphis's bicep—her command armband. It’s in plain sight. Something she missed last night because she was too busy screaming. Idiot.
 	She unpauses the recording, hating how blind she sounds in the memory.
 	“You trained me for this!” her past self shouts.
@@ -70,20 +70,19 @@
 	Athey sighs. The Philippines? She’s watched this four times and still can’t figure it out. What were you doing in Siargao?
 	Koko pulses high then low. «I’m sorry, Athey. The shrapnel has no commercial index or military registry. It’s a custom fabrication. Untraceable.»
 	Custom means resources. Resources means Sky Town or a nation. And untraceable means she’s blind to who they are or when they’ll come. Athey’s teeth feel ready to shatter. She’s been clenching her jaw. 
-	This is why Memphis scrubbed the audio. Not just to protect Athey from hearing them come. To stop her from chasing something she'd never catch.
+	This is why Memphis scrubbed the audio. Not just to protect Athey from hearing them come. To stop her from catching something she can't handle.
 	Memphis's holo offers nothing—just frozen tears and that desperate, open mouth. Her own cheek is wet. She wipes it hard, twice.
 	Athey stands, turning to face the black disc of Skytown—the eye of the spiral—where dark clouds mass and churn against its rim. Dina hasn’t come down and whoever’s hunting Memphis is probably up there too.
-	Resign and run. No. Memphis chose Athey's shape, now she has to live with it, even if she doesn't believe in it anymore.
-
+	Resign and run. Fuck that. Athey still believes in the mission even if Memphis doesn't. 
 	The lift engine cranks and whirs as the car comes to a stop.
 	Athey's spine snaps straight, Memphis's weeping image disperses like sand in wind. She stands and turns to the lift. 
 	Tika's inside holding the gate open. She's wearing a pair of wildly colored, over-sized glasses above a somber smile. “Sorry.” Tika’s fingers clasp together. She studies her shoes for a solemn moment, then peeks up at Athey. She presses her lips together, but the seriousness won't stick.
 	A grin breaks through. She tries to bite it back, fails, and snaps a mock salute. “Everyone’s waiting, Chief Resident.”
 	Tika's laugh cuts through everything. Tika holds the joy Athey used to have. Athey's hands clench into fists, then release. Box it in, Athey. Stay in control. Memphis' voice, sharp through a helmet mic. Athey bites her lip like she did then. Copper on her tongue.
-	"Nice glasses." The words come out flat.
+	“Oh, stop.” Athey forces brightness into her voice, pokes Tika in the belly as she steps inside. “Nice glasses!”
 	"Oh. I printed them this morning...Sorry." Tika readjusts her glasses. "Were you crying?"
 	"No. Dust, allergies. And, you have nothing to be sorry about unless you were printing those when you have been learning with Tribe. It hurts Tribe when you leave them hanging like that."
-	Tika rolls her eyes, then points to Tribe (a six-foot humanoid robot). "Tribe doesn't depend on me-Tribe stans. Look."
+	Tika rolls her eyes, then points to Tribe (a six-foot humanoid robot). "Tribe doesn't hang—Tribe stans. Look."
 	“You're skipping your classes with him. That doesn’t help anyone.”
 	“He only wants to talk about the stack jobs.” Tika sighs, lets the gate clang shut, then flicks up the lever. The motors groan, and the floor lurches upward.
 	“What’s wrong with a stack job?” 
@@ -108,15 +107,15 @@
 	She straightens, walks toward her home, the windows brimming with golden light and the shadows of those she's spent Christmas and Passover with. Eid-Al-Adha and Diwali. 
 	Memphis didn’t spook. She retreated. The only fights she runs from are the ones she can’t win. The audio scrub wasn't to hide herself. It was to hide whatever was hunting her from Athey. She knew Athey would hunt the target—and she knew Athey would lose. It must be Sky Town, but since when have they had a clue? This was something else, something they’ve never seen before. Something Memphis couldn't kite. To stay is suicide. She has to run. But not without Dina.
 	At the far stairwell, Tribe stands sentry. They'd still have Tribe. The stack would be fine.
-	Athey straightens her jacket. She leans toward the door pane, baring her teeth at the dark glass—checking for orange carrot grit or onyx lipstick between her incisors. She tucks a loose strand of violet behind her ear, a strand loose from her dragon braid, forces the corners of her mouth up, and locks it in.
-	Through the glass, Tika shoots her a smile. Tika opens the door. Folding chairs creak under shifting weight. The air is stuffy, thick with the heat of too many bodies in a tight space. Athey swallows. Christina's glasses catch the lamp lights first-then the others, twenty-two pairs, the stack's founders. Watching. 
+	Athey straightens her jacket. She leans toward the door pane, baring her teeth at the dark glass—checking for orange carrot grit or lipstick on her teeth. She tucks a loose strand of black hair behind her ear, escaped from her dragon braid, forces the corners of her mouth up, and locks it in.
+	Through the glass, Tika shoots her a smile. Tika opens the door. Folding chairs creak under shifting weight. The air is stuffy, thick with the heat of too many bodies in a tight space. Athey swallows. Christina's glasses catch the lamp lights first—then the others, twenty-two pairs, the stack's founders. Watching. 
 	They'll be fine. They have to be. But if she's going to bail on them, she doesn't need to steal hope.
 	The door clicks shut behind her.
 	Static crackles. Tribe's voice fills the room, strong enough to be gentle, gravel wrapped in velvet, “Athey has arrived.”
           A murmur of "Thanks, Tribe" ripples through the seated crowd.
 	Tribe speaks again, “Let us begin.”
 	Athey balked every bandit raid, every cannibal's kidnapping. Water runs every year. But all they see are the times she covered for Memphis slipping away from her domestic responsibilities. Athey’s jaw locks. “There’s nothing to begin. Guard’s still searching. Go home.”
-	No one stands. No one reaches for a coat. Christina, who had covered for Memphis's missed holidays-slides her glasses down. Then others follow. Ready to vote. Ready to override her.
+	No one stands. No one reaches for a coat. Christina, who had covered for Memphis's missed holidays—slides her glasses down. Then others follow. Ready to vote. Ready to override her.
 	"Guard's still searching," Athey says. She tries for lightness. "Memphis has faked her death so many times we have jokes for it.”
 	More glasses fall on faces. The joke dies in her throat.
 	Tribe speaks, “Substantial evidence—”
@@ -128,9 +127,10 @@
 	Christina rolls toward the lift, then stops, turns her head to the side, "I'm sorry, Athey. I know how harsh this feels but we can't play around right now this close to Water Day. You know they'll hurt us for it. We're too close for that."
 	Athey shrugs. Athey's never changed Christina's mind. 
 	Christina joins the thinning huddle and all that remains are their candles and the rosemary in the air. Black wicks and white wax. They all think Memphis is dead, just like that. Memphis deserves more. 
-	She stares at the flames. Her hand drifts toward the nearest candle—then stops, fingers curled an inch from the wick. She doesn't know what she meant to do. And, she doesn't have time to figure it out. She's got to find Dina, quick. Athey exhales long and slow. Arms cross. She needs another favor from Luft after she had just hurt him with the last. One day he's going to say no. 
+	She stares at the flames. Her hand drifts toward the nearest candle—then stops, fingers curled an inch from the wick. She doesn't know what she meant to do. And she doesn't have time to figure it out. She's got to find Dina, quickly. Athey exhales long and slow. Arms cross. She needs another favor from Luft after she had just hurt him with the last. One day he's going to say no. 
 	Athey's lip trembles.
-	The wind shifts.  One candle gutters and goes out. Athey goes into her home, toward the red image of Memphis on the wall, holo palms out. Memphis's voice fills Athey's home: "All I'm trying to say-what I mean is-."
+	The wind shifts.  One candle gutters and goes out. 
+	Athey goes into her home, toward the red image of Memphis on the wall, holo palms out. Memphis's voice fills Athey's home: "All I'm trying to say—what I mean is—."
 
 
 
